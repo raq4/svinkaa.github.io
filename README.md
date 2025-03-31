@@ -1,1 +1,0 @@
-# svinkaa.github.io
